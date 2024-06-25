@@ -144,7 +144,7 @@ The Star | the-star.co.ke
 
 30 March 2022 - 15:13 - Updated 30 March 2022 - 22:00  
 The Star | the-star.co.ke  
-[Police probe missing nude photos videos in Linturi case](Police probe missing nude photos videos in Linturi case)
+[Police probe missing nude photos videos in Linturi case](https://www.the-star.co.ke/news/2022-03-30-twist-in-linturis-attempted-rape-case-as-nude-photos-videos-go-missing/)
 
 19/02/2020 - 14:38  
 RFI | rfi.fr  
